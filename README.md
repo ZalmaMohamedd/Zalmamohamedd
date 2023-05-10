@@ -4,8 +4,8 @@
 
 - 🔭 I’m currently working on **DSVR**
 
-- 📄 Know about my experiences ,Click to view my resume  [https://drive.google.com/file/d/1dkxWIZvoERNQ_dPiw_idz3n5eEvVymb9/view?usp=share_link](https://drive.google.com/file/d/1dkxWIZvoERNQ_dPiw_idz3n5eEvVymb9/view?usp=share_link)
-
+- 📄 Know about my experiences ,Click to view my resume 
+(https://drive.google.com/file/d/1KoTr0mBxppSL45VlkmjIjCFLTz-LTLVU/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
